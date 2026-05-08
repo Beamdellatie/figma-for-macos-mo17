@@ -1,4 +1,4 @@
-
+Figma for macOS new Brushes: color correction & gradient maps offers the most advanced Figma for macOS brush, with color correction and gradient maps. Ideal for professional
 
 
 
